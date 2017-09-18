@@ -1,14 +1,14 @@
 ---
 layout: page
-title: About
+title: About Siren Vandoll
 permalink: /about/
 ---
 
 <a href="https://sensiren.files.wordpress.com/2012/08/13427786_10209818608370959_2834634543999730814_n.jpg"><img class="size-medium wp-image-85 alignleft" src="https://sensiren.files.wordpress.com/2012/08/13427786_10209818608370959_2834634543999730814_n.jpg?w=300" alt="13427786_10209818608370959_2834634543999730814_n" width="300" height="300" /></a>
 
-<a href="http://sensiren.com/"><span style="font-weight:400;">Siren Vandoll</span></a><span style="font-weight:400;"> is a sexuality educator, writer, researcher and sensuality mentor from Canberra, Australia. She specializes in BDSM and alternative sexuality, sensual self-empowerment, non-monogamous relationships, positive consent, non-binary advocacy and queer kink.</span>
+<a href="http://sensiren.com/"><span style="font-weight:400;">Siren Vandoll</span></a><span style="font-weight:400;"> is a sexuality educator, writer, reviewer and sensuality mentor from Australia. She specializes in BDSM and alternative sexuality, sensual self-empowerment, ethical non-monogamy and polyamory, femme representation, affirmative consent, non-heteronormative sex ed and queer kink.</span>
 
-<span style="font-weight:400;">Siren is available for workshops, group and event facilitation, mentoring and one-on-one coaching. She operates out of Canberra but can make accommodations and arrangements for other locations. She is also happy to share her knowledge on your podcast, radio program or any other media format.</span>
+<span style="font-weight:400;">Siren is available for workshops, group and event facilitation, mentoring and one-on-one coaching. She currently operates out of Newcastle and Sydney but can make accommodations and arrangements for other locations. She is also happy to share her knowledge on your podcast, radio program or any other media format.</span>
 
 <span style="font-weight:400;">Since July 2014, Siren has run workshops and sessions at Queer Collaborations, ANU, UTS Pride Week, Curtin University, Macquarie University, SEXPO and ACT Rovers. She also worked with the Sydney Festival of Really Good Sex in 2016 and has appeared on panels at SEXPO Melbourne and GX Australia. </span>
 
