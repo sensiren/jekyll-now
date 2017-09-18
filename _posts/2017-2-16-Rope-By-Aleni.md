@@ -11,7 +11,7 @@ I first encountered Aleni when she performed at one of my first <a href="https:/
 
  
 
-[caption id="attachment_322" align="alignnone" width="1024"]<img class="alignleft size-large wp-image-322" src="https://sensiren.files.wordpress.com/2017/01/20160716_145639.jpg?w=1024" alt="20160716_145639" width="1024" height="576" /> Daisy in Rope at Queer <a href="https://studiokink.com/events/skore/" target="_blank" rel="noopener">SKORE</a> in 2016[/caption]
+<img class="alignleft size-large wp-image-322" src="https://sensiren.files.wordpress.com/2017/01/20160716_145639.jpg?w=1024" alt="20160716_145639" width="500" height="500" /> Daisy in Rope at Queer <a href="https://studiokink.com/events/skore/" target="_blank" rel="noopener">SKORE</a> in 2016
 
  
 
