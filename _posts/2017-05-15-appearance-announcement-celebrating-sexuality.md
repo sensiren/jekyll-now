@@ -6,9 +6,8 @@ author: sensiren
 comments: true
 categories: [Announcement]
 ---
-I am so proud and excited to announce that I will be joining some amazing presenters to bring two of my most popular workshops to <a href="http://www.celebratingsexuality.com/" target="_blank" rel="noopener noreferrer">Celebrating Sexuality</a> from November 17th to 19th, 2017!
-
-<img class=" alignnone" src="https://pbs.twimg.com/media/C_1ONYYXYAEW4bW.jpg" width="417" height="218" />
+I am so proud and excited to announce that I will be joining some amazing presenters to bring two of my most popular workshops to <a href="http://www.celebratingsexuality.com/" target="_blank" rel="noopener noreferrer">Celebrating Sexuality</a> from November 17th to 19th, 2017!<br><br>
+<img class=" alignnone" src="https://pbs.twimg.com/media/C_1ONYYXYAEW4bW.jpg"/>
 
 From the CS website: <em>"Celebrating Sexuality is a one of a kind boutique festival, for the exploration of sex and relationships.  Held on the Mornington Peninsula, Victoria, Australia; we unite the tribes of contemporary sexuality across 4 workshop spaces.  </em>
 

@@ -4,11 +4,11 @@ title: 7 Logistical Perks of Polyamory
 date: 2017-06-15 20:04
 author: sensiren
 comments: true
-categories: [Essays, Uncategorized]
+categories: [Essays]
 ---
 <strong>I talk about polyamory a lot</strong>: for work, on dates, online, with medical professionals, with partners, with family, with my communities... and I am happy to. I am passionate about my lifestyle and I love sharing it with people. I talk about challenges - jealousy, scheduling, communication barriers, boundaries, social stigma, coming out - and I talk about how wonderful compersion can feel; how liberating radical communication is and about how much I continue grow as a result of being poly. It's wonderful.
 
-<img class=" size-medium wp-image-1291 alignleft" src="https://sensiren.files.wordpress.com/2017/06/6001282592_25d94eab6b_z.jpg?w=300" alt="6001282592_25d94eab6b_z" width="300" height="225" />
+<img class=" size-medium wp-image-1291 alignleft" src="https://sensiren.files.wordpress.com/2017/06/6001282592_25d94eab6b_z.jpg?w=300" alt="6001282592_25d94eab6b_z" align="left"/>
 
 But there are are world of little things that I don't get to talk about enough, things that don't usually make it into workshops or panel discussion but still enrich my life every day. A few of them have stuck with me of late (<em>and since I have serious writer's block on the piece I'm meant to be writing</em>), here is my silly little list of some of my polyamorous logistical perks!
 

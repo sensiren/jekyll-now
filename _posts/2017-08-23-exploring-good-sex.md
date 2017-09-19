@@ -4,7 +4,7 @@ title: Exploring 'Good Sex'
 date: 2017-08-23 09:44
 author: sensiren
 comments: true
-categories: [Uncategorized]
+categories: [Essay]
 ---
 I've been planning some toy reviews to post here for the last few weeks, I have some cool gear that I want to tell you about and some fun adventures to share, but I have come across an issue that I am struggling to mitigate for in my review process...
 
@@ -28,9 +28,9 @@ The discussion around these pieces and my anxiety around starting to review toys
 
 The answer is obviously yes. I have had bad sex. And I've used sex toys I haven't liked. But I have never really given much thought to what stopped me enjoying those experiences.
 
-Until Now.
+Until Now. <br>
 
-<img class="alignnone size-full wp-image-1320" src="https://sensiren.files.wordpress.com/2017/07/petit-mort.jpg" alt="petit mort" width="640" height="480" />
+<img class="alignnone size-full wp-image-1320" src="https://sensiren.files.wordpress.com/2017/07/petit-mort.jpg" alt="petit mort"/>
 
 As a sex educator, my key advice when people of all genders ask for help 'achieving' orgasm is to shift the focus. Making orgasm the 'goal' creates expectations and pressures that are totally counter productive to pleasure. Removing the "shoulds" we have about sex is liberating and allows us to explore more freely; if orgasms happen in that process it is wonderful, but even if they don't, the emphasis is on equally or more important things.
 
