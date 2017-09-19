@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Workshop Review and Reflection: 'Rope by Aleni' Women's Rope Intensive @ Studio Kink, Sydney -Jan 14th, 2017
+title: Workshop Review and Reflection - 'Rope by Aleni' Women's Rope Intensive @ Studio Kink, Sydney -Jan 14th, 2017
 date: 2017-02-16 09:34
 author: sensiren
 comments: true
