@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 2017: Goals, Healing and Resolutions
+title: 2017 - Goals, Healing and Resolutions
 date: 2017-01-07 00:17
 author: sensiren
 comments: true
