@@ -203,7 +203,7 @@ img {
 .site-description {
   margin: -5px 0 0 0;
   color: $gray;
-  font-size: 16px;
+  font-size: 20px;
 
   @include mobile {
     margin: 3px 0;
@@ -211,10 +211,10 @@ img {
 }
 
 nav {
-  float: right;
+  float: center;
   margin-top: 23px; // @TODO: Vertically middle align
   font-family: $georgia;
-  font-size: 18px;
+  font-size: 16px;
 
   @include mobile {
     float: none;
