@@ -4,7 +4,7 @@ title: Appearance Announcement: Celebrating Sexuality
 date: 2017-05-15 17:42
 author: sensiren
 comments: true
-categories: [Announcements]
+categories: [Essays]
 ---
 I am so proud and excited to announce that I will be joining some amazing presenters to bring two of my most popular workshops to <a href="http://www.celebratingsexuality.com/" target="_blank" rel="noopener noreferrer">Celebrating Sexuality</a> from November 17th to 19th, 2017!
 
