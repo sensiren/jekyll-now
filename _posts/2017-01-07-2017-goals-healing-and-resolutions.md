@@ -6,7 +6,7 @@ author: sensiren
 comments: true
 categories: [Journal Entries]
 ---
-[caption id="attachment_255" align="aligncenter" width="640"]<img class="alignnone size-full wp-image-255" src="https://sensiren.files.wordpress.com/2017/01/8192994407_a7b7bc16e7_z.jpg" alt="8192994407_a7b7bc16e7_z" width="640" height="425" /> Bondage by Ater Crudus (www.saligiaproject.blogspot.com)[/caption]
+<img class="alignnone size-full wp-image-255" src="https://sensiren.files.wordpress.com/2017/01/8192994407_a7b7bc16e7_z.jpg" alt="8192994407_a7b7bc16e7_z" width="640" height="425" /> <br>Bondage by Ater Crudus (www.saligiaproject.blogspot.com
 <h4>It is no secret that the past two years have been incredibly tough for me.</h4>
 Health complications at the end of 2014 became a catalyst for a lot of physical, emotional, psychological, social and financial struggles. I lost the ability to support myself, I became socially isolated in many ways, my self esteem was affected and I became more susceptible to abusive behaviour, my personal relationships while supportive were strained and I was often told that I had lost my 'light'. 2016 started out stronger but continuing health issues, struggles with university admin, catastrophic Centrelink battles and a devastating break up only made things worse. There were some incredible highs - teaching in Perth, Sydney and Melbourne SEXPO, stabilization of my poly family, establishing <a href="http://queerbite.com" target="_blank">Queerbite</a>, making incredible friends, the beauty and love of my support network in action - and I have learned so much about myself. But it has been very, very hard.
 <h4>So now we stand at the dawn of a new year: 2017</h4>
