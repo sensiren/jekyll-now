@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Appearance Announcement- Celebrating Sexuality
+title: Announcement - Celebrating Sexuality
 date: 2017-05-15 17:42
 author: sensiren
 comments: true
