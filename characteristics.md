@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Body & Personal Characteristics
-permalink: /about/
+permalink: /characteristics/
 
 ---
 <strong>General Info
