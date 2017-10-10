@@ -6,7 +6,7 @@
 name: I Am The Siren
 
 # Short bio or description (displayed in the header)
-description: Pleasure Seeker. Hedonist. Sensualist. Sex Nerd.
+description: Blog of Siren Vandoll: Pleasure Seeker. Hedonist. Sensualist. Sex Nerd.
 
 # URL of your avatar or profile pic (you could use your GitHub profile pic)
 avatar: https://pbs.twimg.com/profile_images/378800000400573191/4b06e16cf1abe34b48df633f64767641_400x400.jpeg
@@ -25,7 +25,7 @@ footer-links:
   instagram: thesensiren
   linkedin:
   pinterest:
-  rss: # just type anything here for a working RSS icon
+  rss: YES
   twitter: thesensiren
   stackoverflow: # your stackoverflow profile, e.g. "users/50476/bart-kiers"
   youtube: # channel/<your_long_string> or user/<user-name>
