@@ -86,6 +86,3 @@ exclude:
   - CNAME
 
 theme: jekyll-theme-minimal
-
-plugins:
-    - instagram.rb
