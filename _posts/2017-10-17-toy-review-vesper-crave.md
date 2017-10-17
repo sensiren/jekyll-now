@@ -25,6 +25,7 @@ I had seen the Vesper in a few stores, both in person and online and loved the i
 <h4>Vitals</h4>
 <ul>
 	<li>Pendant Necklace Vibrator</li>
+	<li>$79 USD or aprox $100 AUD</li>
 	<li>Made by <a href="http://www.lovecrave.com">Crave</a></li>
 	<li>4 Settings: Low, Medium, High and Pulse</li>
 	<li>One Button (located near the necklace end)</li>
