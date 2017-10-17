@@ -8,15 +8,14 @@ categories: [Reviews]
 ---
 <img class="alignnone size-full wp-image-2336" src="https://sensiren.files.wordpress.com/2017/10/vesperheading_2_original.jpg" alt="vesperheading_2_original" width="100%" height="100%"/>
 
+
 <hr />
 <p style="text-align:center;"><em>This review is not sponsored and I purchased the item using my own money. It does contain affiliate links.</em></p>
 
 
 <hr />
 
-I purchased the <a href="https://www.stockroom.com/vesper-pendant-necklace-vibrator-by-crave.html?acc=c215b446bcdf956d848a8419c1b5a920">Vesper by Crave</a> for myself back in January from <a href="https://www.stockroom.com/vesper-pendant-necklace-vibrator-by-crave.html?acc=c215b446https://www.stockroom.com/vesper-pendant-necklace-vibrator-by-crave.html?acc=c215b446bcdf956d848a8419c1b5a920bcdf956d848a8419c1b5a920">Stockroom </a>after seeing <a href="http://sunnymegatron.com/">Sunny Megatron</a> post about it on <a href="https://www.instagram.com/sunnymegatron/">Instagram</a> during the AVNs:
-
-{% instagram <BPi2rmDgtZE> %}
+I purchased the <a href="https://www.stockroom.com/vesper-pendant-necklace-vibrator-by-crave.html?acc=c215b446bcdf956d848a8419c1b5a920">Vesper by Crave</a> for myself back in January from <a href="https://www.stockroom.com/vesper-pendant-necklace-vibrator-by-crave.html?acc=c215b446https://www.stockroom.com/vesper-pendant-necklace-vibrator-by-crave.html?acc=c215b446bcdf956d848a8419c1b5a920bcdf956d848a8419c1b5a920">Stockroom </a>after seeing <a href="http://sunnymegatron.com/">Sunny Megatron</a> post about it on <a href="https://www.instagram.com/p/BPi2rmDgtZE/">Instagram during the AVNs.</a>
 
 I had seen the Vesper in a few stores, both in person and online and loved the idea of a wearable vibrator. I wear sex-related clothing fairly often to signal to other sex geeks that I'm DTPDL (Down To Passionately Discuss Lube), so sex toy jewellry seemed like a natural progression.
 <h4>Vitals</h4>
@@ -66,7 +65,7 @@ There is something I really appreciate about this toy that I have only really re
 
 What it does is allow me to do is to bring a vibrator with me through a variety of non-sexual situations, which means that any situation where it does become a sexual object is a conscious choice which I find symbolically empowering. More importantly though, I feel like already having a vibrator with me when I go into a sexual encounter with a vulva owner to be a very validating act; acknowledging the realities of both anatomy and sexual response and deconstructing the patriarchal notion that we shouldn't "need" sex toys. I don't go into these interactions assuming what kind of stimulation my partner needs and the <em>Vesper</em> means I feel more prepared to make them feel good.
 
-[instagram url=https://www.instagram.com/p/BQx-LqjhjSO]
+<img class="alignnone size-full" src="https://sensiren.files.wordpress.com/2017/10/thesensiren-20171017-0001.jpg?quality=80&strip=info&w=1600" width="100%" height="100%"/><center>Crave Vesper on<a href="https://www.instagram.com/p/BQx-LqjhjSO"> @TheSenSiren on Instagram </center>
 
 <h4>Final Thoughts</h4>
 I love my <em>Vesper</em>. I wear it almost every day and have recommend it to plenty of friends.
