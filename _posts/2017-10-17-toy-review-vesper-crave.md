@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Toy Review: Vesper Crave
+title: Toy Review - Vesper Crave
 date: 2017-10-17 10:54
 author: sensiren
 comments: true
