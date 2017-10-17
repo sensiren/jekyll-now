@@ -19,10 +19,7 @@ I purchased the <a href="https://www.stockroom.com/vesper-pendant-necklace-vibra
 <div style="padding:8px;">
 <div style="background:#F8F8F8;line-height:0;margin-top:40px;padding:50% 0;text-align:center;width:100%;"></div>
 <p style="margin:8px 0 0;padding:0 4px;"><a style="color:#000;font-family:Arial, sans-serif;font-size:14px;font-style:normal;font-weight:normal;line-height:17px;text-decoration:none;word-wrap:break-word;" href="https://www.instagram.com/p/BPi2rmDgtZE/" target="_blank" rel="noopener">My @lovecrave Vesper is my new favorite thing!!!! It's come in soooooo handy this trip (both solo and with a partner) that I'm making sure it's always fully charged. I wore it when I hosted the O Awards sex toy awards show. I wore it when I was #sexclowning. I think I may have to wear it every day from here on out just in case I have an unexpected orgasm emergency (you can never be too prepared!). #cravevesper #vibratingnecklace #necklacevibrator #sexgeekchic #bulletvibe #sexjewlery #powerfulvibrator #sextoy #vegas #AVNAwards #avn2017 #aeeexpo</a></p>
-<p style="color:#c9c8cd;font-family:Arial, sans-serif;font-size:14px;line-height:17px;margin-bottom:0;margin-top:8px;overflow:hidden;padding:8px 0 7px;text-align:center;text-overflow:ellipsis;white-space:nowrap;">A post shared by Sunny Megatron (@sunnymegatron) on <time datetime="2017-01-21T23:19:09+00:00">Jan 21, 2017 at 3:19pm PST</time></p>
-
-</div></blockquote>
-&nbsp;
+<p style="color:#c9c8cd;font-family:Arial, sans-serif;font-size:14px;line-height:17px;margin-bottom:0;margin-top:8px;overflow:hidden;padding:8px 0 7px;text-align:center;text-overflow:ellipsis;white-space:nowrap;">A post shared by Sunny Megatron (@sunnymegatron) on <time datetime="2017-01-21T23:19:09+00:00">Jan 21, 2017 at 3:19pm PST</time></p></div></blockquote>
 
 I had seen the Vesper in a few stores, both in person and online and loved the idea of a wearable vibrator. I wear sex-related clothing fairly often to signal to other sex geeks that I'm DTPDL (Down To Passionately Discuss Lube), so sex toy jewellry seemed like a natural progression.
 <h4>Vitals</h4>
@@ -44,7 +41,7 @@ The <em>Crave Vesper</em>'s packaging is gorgeous. It feels luxurious and captur
 
 I purchased my <em>Vesper</em> in the rose gold colourway and it's beautiful; it honestly looks like a sleek modern accessory and I love the (comfortable) weight of it around my neck. After wearing it for several months, I've found only people familiar with the product clock it for what it is (which is usually a great conversation/flirtation initiator) and I get compliments about it all the time. I often wear it on first dates as a way to bring a feeling of sexy playfulness.
 
-This toy uses a USB charger that screws into the top on the pendant (after unscrewing the 'necklace' tip)  and I found it charges quickly and is very travel friendly.
+This toy uses a USB charger that screws into the top on the pendant (after unscrewing the 'necklace' tip)  and I found it charges quickly and is very travel friendly.<br><br>
 
 <img class="aligncenter size-custom wp-image-2115" title="" src="https://sensiren.files.wordpress.com/2017/10/22561158_10214614230818523_429283514_o.jpg" alt="22561158_10214614230818523_429283514_o" width="600" height="200" />
 
@@ -68,6 +65,7 @@ I've used the <em>Vesper</em> with a variety of vulva-driving partners during o
 There is something I really appreciate about this toy that I have only really realised while reflecting for this review. <em>Normalisation.</em>
 
 What it does is allow me to do is to bring a vibrator with me through a variety of non-sexual situations, which means that any situation where it does become a sexual object is a conscious choice which I find symbolically empowering. More importantly though, I feel like already having a vibrator with me when I go into a sexual encounter with a vulva owner to be a very validating act; acknowledging the realities of both anatomy and sexual response and deconstructing the patriarchal notion that we shouldn't "need" sex toys. I don't go into these interactions assuming what kind of stimulation my partner needs and the <em>Vesper</em> means I feel more prepared to make them feel good.
+
 <blockquote class="instagram-media" style="background:#FFF;border:0;border-radius:3px;box-shadow:0 0 1px 0 rgba(0,0,0,0.5), 0 1px 10px 0 rgba(0,0,0,0.15);margin:1px;max-width:658px;padding:0;width:calc(100% - 2px);">
 <div style="padding:8px;">
 <div style="background:#F8F8F8;line-height:0;margin-top:40px;padding:50% 0;text-align:center;width:100%;"></div>
@@ -75,7 +73,7 @@ What it does is allow me to do is to bring a vibrator with me through a variety 
 
 </div></blockquote>
 <h4>Final Thoughts</h4>
-I love my <em>Vesper</em>. I wear it almost every day and have recommend it to plenty of friends.
-As a sex toy it is simple, versatile and effective.
-As an accessory it's sexy and sophisticated.
+I love my <em>Vesper</em>. I wear it almost every day and have recommend it to plenty of friends.<br>
+As a sex toy it is simple, versatile and effective.<br>
+As an accessory it's sexy and sophisticated.<br>
 But for me, it's true power is in its symbolism.
