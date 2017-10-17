@@ -65,7 +65,8 @@ There is something I really appreciate about this toy that I have only really re
 
 What it does is allow me to do is to bring a vibrator with me through a variety of non-sexual situations, which means that any situation where it does become a sexual object is a conscious choice which I find symbolically empowering. More importantly though, I feel like already having a vibrator with me when I go into a sexual encounter with a vulva owner to be a very validating act; acknowledging the realities of both anatomy and sexual response and deconstructing the patriarchal notion that we shouldn't "need" sex toys. I don't go into these interactions assuming what kind of stimulation my partner needs and the <em>Vesper</em> means I feel more prepared to make them feel good.
 
-<center><img class="alignnone size-full" src="https://sensiren.files.wordpress.com/2017/10/thesensiren-20171017-0001.jpg?quality=80&strip=info&w=1600" width="100%" height="100%"/>Crave Vesper on<a href="https://www.instagram.com/p/BQx-LqjhjSO"> @TheSenSiren on Instagram</a></center>
+<center><img class="alignnone size-full" src="https://sensiren.files.wordpress.com/2017/10/thesensiren-20171017-0001.jpg?quality=80&strip=info&w=1600" width="100%" height="100%"/>Crave Vesper on<a href="https://www.instagram.com/p/BQx-LqjhjSO"> @TheSenSiren on Instagram</a>
+</center>
 
 <h4>Final Thoughts</h4>
 I love my <em>Vesper</em>. I wear it almost every day and have recommend it to plenty of friends.
