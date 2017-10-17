@@ -6,7 +6,7 @@ author: sensiren
 comments: true
 categories: [Reviews]
 ---
-<img class="wp-image-2146 size-full aligncenter" src="https://sensiren.files.wordpress.com/2017/10/vesperheading_1_original-11.jpg" alt="" width="600" height="200" /></a>
+<img class="wp-image-2146 size-full aligncenter" src="https://sensiren.files.wordpress.com/2017/10/vesperheading_1_original-11.jpg" alt="" width="600" height="200" />
 
 <hr />
 <p style="text-align:center;"><em>This review is not sponsored and I purchased the item using my own money. It does contain affiliate links.</em></p>
