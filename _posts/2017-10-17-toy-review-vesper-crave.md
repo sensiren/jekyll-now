@@ -69,7 +69,7 @@ What it does is allow me to do is to bring a vibrator with me through a variety 
 [instagram url=https://www.instagram.com/p/BQx-LqjhjSO]
 <h4>Final Thoughts</h4>
 I love my <em>Vesper</em>. I wear it almost every day and have recommend it to plenty of friends.
-I find it best lends itself to spontaneous play and travelling light.
+I find it best lends itself to spontaneous play and traveling light.
 
 As a sex toy it is simple, versatile and effective.
 As an accessory it's sexy and sophisticated.
