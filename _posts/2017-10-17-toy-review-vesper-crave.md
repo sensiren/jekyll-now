@@ -67,6 +67,7 @@ There is something I really appreciate about this toy that I have only really re
 What it does is allow me to do is to bring a vibrator with me through a variety of non-sexual situations, which means that any situation where it does become a sexual object is a conscious choice which I find symbolically empowering. More importantly though, I feel like already having a vibrator with me when I go into a sexual encounter with a vulva owner to be a very validating act; acknowledging the realities of both anatomy and sexual response and deconstructing the patriarchal notion that we shouldn't "need" sex toys. I don't go into these interactions assuming what kind of stimulation my partner needs and the <em>Vesper</em> means I feel more prepared to make them feel good.
 
 [instagram url=https://www.instagram.com/p/BQx-LqjhjSO]
+
 <h4>Final Thoughts</h4>
 I love my <em>Vesper</em>. I wear it almost every day and have recommend it to plenty of friends.
 I find it best lends itself to spontaneous play and traveling light.
