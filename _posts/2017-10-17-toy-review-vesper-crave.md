@@ -6,7 +6,7 @@ author: sensiren
 comments: true
 categories: [Reviews]
 ---
-<img class="wp-image-2146 size-full aligncenter" src="https://sensiren.files.wordpress.com/2017/10/vesperheading_1_original-11.jpg" alt="" width="600" height="200" />
+<img class="wp-image-2146 size-full aligncenter" src="https://sensiren.files.wordpress.com/2017/10/vesperheading_1_original-11.jpg" alt="" width="100%" height="100%" />
 
 <hr />
 <p style="text-align:center;"><em>This review is not sponsored and I purchased the item using my own money. It does contain affiliate links.</em></p>
@@ -43,7 +43,7 @@ I purchased my <em>Vesper</em> in the rose gold colourway and it's beautiful; it
 
 This toy uses a USB charger that screws into the top on the pendant (after unscrewing the 'necklace' tip)  and I found it charges quickly and is very travel friendly.<br><br>
 
-<img class="aligncenter size-custom wp-image-2115" title="" src="https://sensiren.files.wordpress.com/2017/10/22561158_10214614230818523_429283514_o.jpg" alt="22561158_10214614230818523_429283514_o" width="600" height="200" />
+<img class="aligncenter size-custom wp-image-2115" title="" src="https://sensiren.files.wordpress.com/2017/10/22561158_10214614230818523_429283514_o.jpg" alt="22561158_10214614230818523_429283514_o" width="100%" height="100%" />
 
 So I love the <em>Vesper</em> as an accessory but what about as a vibrator?
 <h4>Self Directed Play</h4>
