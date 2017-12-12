@@ -14,5 +14,4 @@ permalink: /about/
 
 <span style="font-weight:400;">She is the leader and coordinator of </span><a href="https://www.facebook.com/groups/sexgeekdomact/"><span style="font-weight:400;">Sex Geekdom ACT</span></a><span style="font-weight:400;">, which runs discussion groups and social events for sex positive Canberrans.</span>
 
-<span style="font-weight:400;">Vandoll is also a writer and contributor to the Queer/Sex Positive/Feminist webcomic ‘</span><a href="http://queerbite.com/"><span style="font-weight:400;">Queerbite</span></a><span style="font-weight:400;">‘.</span>
 
