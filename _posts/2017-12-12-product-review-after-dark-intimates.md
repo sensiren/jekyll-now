@@ -6,10 +6,10 @@ author: sensiren
 comments: true
 categories: [Reviews]
 ---
-<a href="https://c1.staticflickr.com/5/4590/24090785897_7d70675bcb_o.jpg"><img class="alignnone size-full wp-image-2336" src="https://c1.staticflickr.com/5/4590/24090785897_7d70675bcb_o.jpg" alt="ADI Review" width="800" height="400" /></a>
+<a href="https://c1.staticflickr.com/5/4590/24090785897_7d70675bcb_o.jpg"><img class="alignnone size-full wp-image-2336" src="https://c1.staticflickr.com/5/4590/24090785897_7d70675bcb_o.jpg" alt="ADI Review" width="100%"></a>
 
 <hr />
-<p style="text-align:center;"><i> After Dark Intimates sent me these products in exchange for an honest and fair review. This is not a sponsored post.</i></p>
+<p style="text-align:center;"><i> After Dark Intimates sent me these products in exchange for an honest and fair review. This is not a sponsored post but it does contain affiliate links.</i></p>
 <p style="text-align:center;"><a href="http://afterdarkintimate.com/product/2-x-26pc-after-dark-intimate-packs/">After Dark currently have 50% your cart with the code '50sale' so you can stock up for the new year</a></p>
 
 
