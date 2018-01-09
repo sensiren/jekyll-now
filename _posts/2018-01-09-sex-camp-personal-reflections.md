@@ -6,6 +6,13 @@ author: sensiren
 comments: true
 categories: [Journal Entries]
 ---
+
+<hr />
+<p style="text-align:center;"><em>Celebrating Sexuality ran from November 17th to 20th, I attended as a presenter and recieved a free ticket and travel allowance.This content is not sponsored and contains an honest reflection on my experience.</p>
+
+
+<hr />
+
 <img class=" size-full wp-image-2376 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/cs-flyer-cropped-elgpc.png" alt="cs-flyer-cropped-elgpc" width="100%" height="100%" />
 It's been over a month since I left Celebrating Sexuality, a <a href="http://www.celebratingsexuality.com/what-is-celebrating-sexuality.html">"one of a kind festival for the exploration of sex and relationships, held on the Mornington Peninsula, Victoria, Australia"</a>, and I think I have finally managed to scrub the mud from my knees, catch up on my social media and process what was easily one of the most intense weekends of my life and I can absolutely confirm that there is nothing like Sex Camp!
 
