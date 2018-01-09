@@ -39,7 +39,8 @@ It's not a new feeling but I think it's the first time I felt completely disconn
 
 But out of this panic came a realization that I exist at the apex of all my intersections; I authentically exist both within and outside these communities and that perspective is unique. I've spent a lot of time re-accessing what I want to put out in the world of late and identifying what I bring to the field and this new understanding has shifted from something I considered a weakness to something I now want to explore and develop more in 2018. Watch out for my follow up to <a href="http://www.sensiren.blog/journal%20entries/2017/01/07/2017-goals-healing-and-resolutions/">last year's resolution post</a>.
 
-<img class=" size-full wp-image-2394" src="https://sensiren.files.wordpress.com/2018/01/aly-sex-camp-wm-8.jpg" alt="Sex Camp WM-8" width="100% height="100%" />
+<img class=" size-full wp-image-2394 " src="https://sensiren.files.wordpress.com/2018/01/aly-sex-camp-wm-8.jpg" alt="Sex Camp WM-8" width="100%" height="100%" />
+
 
 <hr />
 
@@ -79,7 +80,7 @@ I could literally write five thousand words on the things that make me know I wi
 	<li>The playful but validating fury of the people who let me vent to them when a snide femmephobic comment was made about my wearing eyeliner while camping.<img class="  wp-image-2382 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/selfie2.jpg" alt="selfie2.jpg" width="100%" height="100%" /></li>
 	<li>The wonderful discussions with different people about which of the spaces (heart, star, moon, garden and sun) they connected with.</li>
 	<li>The slightly smug feeling when you remembered to pack a headlamp!</li>ent.<img class="  wp-image-2382 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/tentview.jpg?w=5312" alt="tentview.jpg" width="100%" height="100%" /></li>
-	<li>The mix of joy and mortification when someone stared at me mid-
+	<li>The mix of joy and mortification when someone stared at me mid-conversation and said "oh my god, you're Siren Vandoll" #supernichefamous</li>
 	<li>Sharing and hearing stories of everyone's individual experiences with each workshop - whether we were in the same one or not - as everyone took something so beautiful and unique from each session.</li>
 	<li>The kindness of near strangers when I felt my worst and wanted to hide from everything and everyone.</li>
 	<li>The diverse and spectacular costumes at the Saturday night party and the crowds authentic encouragement of the participants in the fashion show.</li>
