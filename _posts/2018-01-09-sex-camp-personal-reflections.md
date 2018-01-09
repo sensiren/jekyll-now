@@ -38,7 +38,7 @@ It's not a new feeling but I think it's the first time I felt completely disconn
 
 But out of this panic came a realization that I exist at the apex of all my intersections; I authentically exist both within and outside these communities and that perspective is unique. I've spent a lot of time re-accessing what I want to put out in the world of late and identifying what I bring to the field and this new understanding has shifted from something I considered a weakness to something I now want to explore and develop more in 2018. Watch out for my follow up to <a href="http://www.sensiren.blog/journal%20entries/2017/01/07/2017-goals-healing-and-resolutions/">last year's resolution post</a>.
 
-<img class=" size-full wp-image-2394 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/aly-sex-camp-wm-8.jpg" alt="Aly Sex Camp WM-8" width="50%" height="50%" />
+<img class=" size-full wp-image-2394 align-center" src="https://sensiren.files.wordpress.com/2018/01/aly-sex-camp-wm-8.jpg" alt="Aly Sex Camp WM-8" width="75%" height="75%" />
 
 <hr />
 
