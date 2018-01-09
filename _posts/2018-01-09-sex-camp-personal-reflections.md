@@ -39,7 +39,7 @@ It's not a new feeling but I think it's the first time I felt completely disconn
 
 But out of this panic came a realization that I exist at the apex of all my intersections; I authentically exist both within and outside these communities and that perspective is unique. I've spent a lot of time re-accessing what I want to put out in the world of late and identifying what I bring to the field and this new understanding has shifted from something I considered a weakness to something I now want to explore and develop more in 2018. Watch out for my follow up to <a href="http://www.sensiren.blog/journal%20entries/2017/01/07/2017-goals-healing-and-resolutions/">last year's resolution post</a>.
 
-<img class=" size-full wp-image-2394" src="https://sensiren.files.wordpress.com/2018/01/aly-sex-camp-wm-8.jpg" alt="Sex Camp WM-8" width="75%" height="75%" />
+<img class=" size-full wp-image-2394" src="https://sensiren.files.wordpress.com/2018/01/aly-sex-camp-wm-8.jpg" alt="Sex Camp WM-8" width="100% height="100%" />
 
 <hr />
 
@@ -71,7 +71,7 @@ I also question the ethics of a workshop I attended that actively encouraged tra
 
 I could literally write five thousand words on the things that make me know I will return to Celebrating Sexuality, so instead here are some vignettes:
 <ul>
-	<li>Roadtripping with Brigid to and from Melbourne - even when I had a cold and we had to wear very sexy face masks.<br><img class="  wp-image-2389 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/mask.png" alt="mask" width="346" height="519" /></li>
+	<li>Roadtripping with Brigid to and from Melbourne - even when I had a cold and we had to wear very sexy face masks.<br><img class="wp-image-2389" src="https://sensiren.files.wordpress.com/2018/01/mask.png" alt="mask" width="100%" height="100%" /></li>
 	<li>The feeling of the opening ceremony, which took me from anxious disassociation to tears of joy as the terms of conduct were collectively negotiated, a spark was lit and shared, I realised that I had achieved something I had set out to do over a year before and I felt truly transported from the real world to the otherworldly Sex Camp.</li>
 	<li>The moment in my choice of opening night workshop when I felt myself completely surrender to my sensual truth and let my body speak. Crawling on the ground, feeling people press against me as we slide over, under and around each other's bodies, drawing 'energy' from the depths of the earth and from the people around me, closing my eyes and trusting my body to guide me, letting my breath reach every cell of my being, not only accepting touch but reveling in it and just feeling completely present in my body but also elevated above it.</li>
 	<li>Sharing the mountain of snacks I packed with new friends.</li>
