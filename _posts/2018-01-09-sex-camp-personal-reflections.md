@@ -19,8 +19,9 @@ Clarification of where I have grown personally and professionally; but also wher
 
 Clarification of my relationships with technology, physical touch, nature and my trauma.
 
-And clarification of how far I have to go to achieve what I want.
+And clarification of how far I have to go to achieve what I want.<br><br>
 
+<img class="  wp-image-2382 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/programpoly.jpg" alt="programepoly-2.jpg" width="50%" height="50%" /><img class="wp-image-2382" src="https://sensiren.files.wordpress.com/2018/01/programsense1.jpg" alt="programsense.jpg" width="50%" height="50%" />
 
 I don't want to do a complete retelling of the event like I have in the past, but more want to share specific experiences. This piece also only reflects my own story and experience, every person I met had a different one and that was beautiful in its own right. During our opening ceremony we committed to only tell our own stories when we leave and I will obviously honor that.
 
@@ -74,11 +75,11 @@ I could literally write five thousand words on the things that make me know I wi
 	<li>The feeling of the opening ceremony, which took me from anxious disassociation to tears of joy as the terms of conduct were collectively negotiated, a spark was lit and shared, I realised that I had achieved something I had set out to do over a year before and I felt truly transported from the real world to the otherworldly Sex Camp.</li>
 	<li>The moment in my choice of opening night workshop when I felt myself completely surrender to my sensual truth and let my body speak. Crawling on the ground, feeling people press against me as we slide over, under and around each other's bodies, drawing 'energy' from the depths of the earth and from the people around me, closing my eyes and trusting my body to guide me, letting my breath reach every cell of my being, not only accepting touch but reveling in it and just feeling completely present in my body but also elevated above it.</li>
 	<li>Sharing the mountain of snacks I packed with new friends.</li>
-	<li>Waking up in Mornington each day. I do not have the words to tell you what that felt, looked, smelt, tasted or sounded like. I am by no means outdoorsy but something about that land just really resonated with me and with the energy of the event.<img class="  wp-image-2382 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/tentview.jpg?w=5312" alt="tentview.jpg" width="100%" height="100%" /></li>
-	<li>The mix of joy and mortification when someone stared at me mid-conversation and said "oh my god, you're Siren Vandoll" #supernichefamous</li>
-	<li>The playful but validating fury of the people who let me vent to them when a snide femmephobic comment was made about my wearing eyeliner while camping.[gallery ids="2385,2386" type="rectangular"]</li>
+	<li>Waking up in Mornington each day. I do not have the words to tell you what that felt, looked, smelt, tasted or sounded like. I am by no means outdoorsy but something about that land just really resonated with me and with the energy of the evconversation and said "oh my god, you're Siren Vandoll" #supernichefamous</li>
+	<li>The playful but validating fury of the people who let me vent to them when a snide femmephobic comment was made about my wearing eyeliner while camping.<img class="  wp-image-2382 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/selfie2.jpg" alt="selfie2.jpg" width="100%" height="100%" /></li>
 	<li>The wonderful discussions with different people about which of the spaces (heart, star, moon, garden and sun) they connected with.</li>
-	<li>The slightly smug feeling when you remembered to pack a headlamp!</li>
+	<li>The slightly smug feeling when you remembered to pack a headlamp!</li>ent.<img class="  wp-image-2382 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/tentview.jpg?w=5312" alt="tentview.jpg" width="100%" height="100%" /></li>
+	<li>The mix of joy and mortification when someone stared at me mid-
 	<li>Sharing and hearing stories of everyone's individual experiences with each workshop - whether we were in the same one or not - as everyone took something so beautiful and unique from each session.</li>
 	<li>The kindness of near strangers when I felt my worst and wanted to hide from everything and everyone.</li>
 	<li>The diverse and spectacular costumes at the Saturday night party and the crowds authentic encouragement of the participants in the fashion show.</li>
