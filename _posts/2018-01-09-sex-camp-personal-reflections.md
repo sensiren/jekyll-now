@@ -38,7 +38,7 @@ It's not a new feeling but I think it's the first time I felt completely disconn
 
 But out of this panic came a realization that I exist at the apex of all my intersections; I authentically exist both within and outside these communities and that perspective is unique. I've spent a lot of time re-accessing what I want to put out in the world of late and identifying what I bring to the field and this new understanding has shifted from something I considered a weakness to something I now want to explore and develop more in 2018. Watch out for my follow up to <a href="http://www.sensiren.blog/journal%20entries/2017/01/07/2017-goals-healing-and-resolutions/">last year's resolution post</a>.
 
-<img class=" size-full wp-image-2394 align-center" src="https://sensiren.files.wordpress.com/2018/01/aly-sex-camp-wm-8.jpg" alt="Aly Sex Camp WM-8" width="75%" height="75%" />
+<p align="center"><img class=" size-full wp-image-2394" src="https://sensiren.files.wordpress.com/2018/01/aly-sex-camp-wm-8.jpg" alt="Sex Camp WM-8" width="75%" height="75%" /></p>
 
 <hr />
 
@@ -70,25 +70,27 @@ I also question the ethics of a workshop I attended that actively encouraged tra
 
 I could literally write five thousand words on the things that make me know I will return to Celebrating Sexuality, so instead here are some vignettes:
 <ul>
-	<li>Roadtripping with Brigid to and from Melbourne - even when I had a cold and we had to wear very sexy face masks.<br><img class="  wp-image-2389 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/mask.png" alt="mask" width="346" height="519" /></li>
+	<li>Roadtripping with Brigid to and from Melbourne - even when I had a cold and we had to wear very sexy face masks.<br><p align="center"><img class="  wp-image-2389 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/mask.png" alt="mask" width="346" height="519" /><p></li>
 	<li>The feeling of the opening ceremony, which took me from anxious disassociation to tears of joy as the terms of conduct were collectively negotiated, a spark was lit and shared, I realised that I had achieved something I had set out to do over a year before and I felt truly transported from the real world to the otherworldly Sex Camp.</li>
 	<li>The moment in my choice of opening night workshop when I felt myself completely surrender to my sensual truth and let my body speak. Crawling on the ground, feeling people press against me as we slide over, under and around each other's bodies, drawing 'energy' from the depths of the earth and from the people around me, closing my eyes and trusting my body to guide me, letting my breath reach every cell of my being, not only accepting touch but reveling in it and just feeling completely present in my body but also elevated above it.</li>
 	<li>Sharing the mountain of snacks I packed with new friends.</li>
-	<li>Waking up in Mornington each day. I do not have the words to tell you what that felt, looked, smelt, tasted or sounded like. I am by no means outdoorsy but something about that land just really resonated with me and with the energy of the event.<img class="  wp-image-2382 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/tentview.jpg?w=5312" alt="tentview.jpg" width="373" height="666" /></li>
+	<li>Waking up in Mornington each day. I do not have the words to tell you what that felt, looked, smelt, tasted or sounded like. I am by no means outdoorsy but something about that land just really resonated with me and with the energy of the event.<p align="center"><img class="wp-image-2382" src="https://sensiren.files.wordpress.com/2018/01/tentview.jpg?w=5312" alt="tentview.jpg" width="100%" height="100%" /></p></li>
 	<li>The mix of joy and mortification when someone stared at me mid-conversation and said "oh my god, you're Siren Vandoll" #supernichefamous</li>
-	<li>The playful but validating fury of the people who let me vent to them when a snide femmephobic comment was made about my wearing eyeliner while camping.[gallery ids="2385,2386" type="rectangular"]</li>
+	<li>The playful but validating fury of the people who let me vent to them when a snide femmephobic comment was made about my wearing eyeliner while camping.</li>
 	<li>The wonderful discussions with different people about which of the spaces (heart, star, moon, garden and sun) they connected with.</li>
 	<li>The slightly smug feeling when you remembered to pack a headlamp!</li>
 	<li>Sharing and hearing stories of everyone's individual experiences with each workshop - whether we were in the same one or not - as everyone took something so beautiful and unique from each session.</li>
 	<li>The kindness of near strangers when I felt my worst and wanted to hide from everything and everyone.</li>
 	<li>The diverse and spectacular costumes at the Saturday night party and the crowds authentic encouragement of the participants in the fashion show.</li>
 	<li>OMG THE VEGAN CAKES!!!</li>
-	<li>Eating vegan cake and drinking tea in the Heart Space with Brigid while only hearing the audio from <a href="http://www.seanilove.com">Seani Love</a>'s Pirate Interrogation Workshop<img class=" size-full wp-image-2384 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/tarot1.jpg" alt="tarot" width="100%" height="100%" /></li>
+	<li>Eating vegan cake and drinking tea in the Heart Space with Brigid while only hearing the audio from <a href="http://www.seanilove.com">Seani Love</a>'s Pirate Interrogation Workshop
+	<p align="center"><img class=" size-full wp-image-2384 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/tarot1.jpg" alt="tarot" width="100%" height="100%" /><p></li>
 	<li>Deliciously vicious fun with an adorable masochist (despite having to play in a tent ;P)</li>
 	<li>Skinny dipping in the swimming lake at noon (except when it meant I was late to introduce my workshop =/)</li>
 	<li>My amazing Brigid stepping up to announce it for me and apparently doing an incredible job.</li>
 	<li>The gift that was my polyamory discussion workshop. It's almost always my favourite to teach anyway but the energy, openmindedness and empathy of this group were very very special. It was the perfect end to my official CS experience.</li>
-	<li>Sunday morning photoshoots and exploration with Brigid - even with the bugs, mud, grass and twigs where they shouldn't be!<img class="alignnone size-full wp-image-2387" src="https://sensiren.files.wordpress.com/2018/01/brigidphotoshoot.jpg" alt="brigidphotoshoot.jpg" width="100%" height="100%" /></li>
+	<li>Sunday morning photoshoots and exploration with Brigid - even with the bugs, mud, grass and twigs where they shouldn't be!
+	<p align="center"><img class=" size-full wp-image-2387" src="https://sensiren.files.wordpress.com/2018/01/brigidphotoshoot.jpg" alt="brigidphotoshoot.jpg" width="100%" height="100%" /></p></li>
 	<li>The little bit of reception that kept me connected to my polycule. I know some people find it freeing to be away from technology but to me, not having that connection to my support network was incredibly anxiety inducing during such an intense few days with so many emotions. The few moments I got to talk to them kept me grounded and allowed me to really enjoy the weekend.</li>
 	<li>Sunday Night Sybian. This one might deserve its own post but I finally got to mark it off my <em>fuckit</em> <em>list</em> in a space and context that felt right and it was magical. Thank you <a href="https://www.curiouscreatures.biz">Curious Creatures!</a></li>
 	<li>The fantastic agony of being a Switch torn between a queer degradation gangbang of her girlfriend and super hot dommy texts from and out-of-state lover taking advantage of a Sybian-induced subby moment.</li>
