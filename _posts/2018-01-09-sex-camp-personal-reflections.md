@@ -21,7 +21,7 @@ Clarification of my relationships with technology, physical touch, nature and my
 
 And clarification of how far I have to go to achieve what I want.<br><br>
 
-<img class="  wp-image-2382 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/programpoly.jpg" alt="programepoly-2.jpg" width="50%" height="50%" /><img class="wp-image-2382" src="https://sensiren.files.wordpress.com/2018/01/programsense1.jpg" alt="programsense.jpg" width="50%" height="50%" />
+<img class="  wp-image-2382 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/programpoly1.jpg" alt="programepoly.jpg" width="50%" height="50%" /><img class="wp-image-2382" src="https://sensiren.files.wordpress.com/2018/01/programsense1.jpg" alt="programsense.jpg" width="50%" height="50%" />
 
 I don't want to do a complete retelling of the event like I have in the past, but more want to share specific experiences. This piece also only reflects my own story and experience, every person I met had a different one and that was beautiful in its own right. During our opening ceremony we committed to only tell our own stories when we leave and I will obviously honor that.
 
