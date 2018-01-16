@@ -102,4 +102,4 @@ I could go on forever, but what I really want to share is the <strong>joy</stron
 <div style="text-align:center"><img src="https://sensiren.files.wordpress.com/2018/01/brigidsitting1.jpg" width="50%" height="50%" border="10px"></div>
 <br>
 <div style="text-align:center">One final note is one of the most important: the<strong> biggest thank you </strong>to my beautiful Brigid. From doing the driving, to bringing the camping gear and making sure I didn't die of exposure, from helping and bottoming for my workshops to supporting me emotionally. You endlessly inspire and push me to do more than I could ever believe I could. Couldn't have done this without you. Thank you my love. Xx<br><br>
-<a href="https://www.patreon.com/purvore"><strong>Go support her amazing photography here!</strong></a><div><br>
+<a href="https://www.patreon.com/purvore"><strong>Go support her amazing photography here!</strong></a></div><br>
