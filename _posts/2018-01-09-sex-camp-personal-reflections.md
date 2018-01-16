@@ -10,12 +10,7 @@ categories: [Journal Entries]
 
 <hr />
 
- <style>
- .center {
-     text-align: center;
- }
- </style>
- <div class="center">
+<div style="text-align:center">
 <p><i>Celebrating Sexuality ran from November 17th to 20th, 2017. I attended as a presenter and received a free ticket and travel allowance.This content is not sponsored and contains an honest reflection on my experience.</p> </i>
 </div>
 
