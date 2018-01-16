@@ -99,7 +99,7 @@ I also question the ethics of a workshop I attended that actively encouraged tra
 </ul></div>
 I could go on forever, but what I really want to share is the <strong>joy</strong> that my Celebrating Sexuality experience bought me both personally and professionally. It was beautiful and intense and passionate and challenging and sexy and inspiring and just <strong>so much fun</strong>. It was an absolutely privilege to be involved. I cannot wait for the 2018 festival - you can sign up for <a href="http://www.celebratingsexuality.com/buy-tickets.html">presale info here</a> - and I hope that you will come and join me for this absolutely magical and transformative experience (you'll find me in the Glamping section this time) and stay tuned for a Sex Camp Survial Guide coming later this year!<br><br>
 
-<p>![brigidsitting](https://sensiren.files.wordpress.com/2018/01/brigidsitting1.jpg?raw=true)
+<img src="https://sensiren.files.wordpress.com/2018/01/brigidsitting1.jpg" width="30%" height="30%" border="10px">
 
 One final note is one of the most important: the<strong> biggest thank you </strong>to my beautiful Brigid. From doing the driving, to bringing the camping gear and making sure I didn't die of exposure, from helping and bottoming for my workshops to supporting me emotionally. You endlessly inspire and push me to do more than I could ever believe I could. Couldn't have done this without you. Thank you my love. Xx<br><br>
 
