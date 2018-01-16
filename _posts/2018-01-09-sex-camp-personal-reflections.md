@@ -67,7 +67,7 @@ I also question the ethics of a workshop I attended that actively encouraged tra
 
 <strong>But for every issue I had, I have a hundred positive things to counter it.</strong>
 
-I could literally write five thousand words on the things that make me know I will return to Celebrating Sexuality, so instead here are some vignettes:<div style="text-align:center">
+<div style="text-align:center">I could literally write five thousand words on the things that make me know I will return to Celebrating Sexuality, so instead here are some vignettes:
 <ul>
 	<li>Roadtripping with Brigid to and from Melbourne - even when I had a cold and we had to wear very sexy face masks.<br><img src="https://sensiren.files.wordpress.com/2018/01/mask.png" alt="mask" width="346" height="519" /></li>
 	<li>The feeling of the opening ceremony, which took me from anxious disassociation to tears of joy as the terms of conduct were collectively negotiated, a spark was lit and shared, I realised that I had achieved something I had set out to do over a year before and I felt truly transported from the real world to the otherworldly Sex Camp.</li>
@@ -96,9 +96,9 @@ I could literally write five thousand words on the things that make me know I wi
 	<li>Connecting with so many incredible people as educators, volunteer and participants on so many levels.</li>
 	<li>Stillness. Not something I am often comfortable with, but something I need to teach myself to appreciate. Taking a morning off to just sit by the lack and drink tea - no headphones, no book, no phone, no work - was challenging but allowed me to take in and be present in the special space we were sharing and the beautiful environment we were surrounded by. It's definitely something I want to make room for this year.<img class="  wp-image-2390 aligncenter" src="https://sensiren.files.wordpress.com/2018/01/brigidreading.jpg" alt="brigidreading" width="100%" height="100%" /></li>
 	<li>A re-calibration of perspective. Logically I know my life is pretty unconventional but being reminded that my 'normal' isn't 'normal' is important because it reminds me I have something to share. The people I met at Celebrating Sexuality came from such a wide range of backgrounds and experiences - there was no "type" - and that motivates and drives me to help empower people move beyond the normative to live their best sensual, sexual and intimate lives.</li>
-</ul>
+</ul></div>
 I could go on forever, but what I really want to share is the <strong>joy</strong> that my Celebrating Sexuality experience bought me both personally and professionally. It was beautiful and intense and passionate and challenging and sexy and inspiring and just <strong>so much fun</strong>. It was an absolutely privilege to be involved. I cannot wait for the 2018 festival - you can sign up for <a href="http://www.celebratingsexuality.com/buy-tickets.html">presale info here</a> - and I hope that you will come and join me for this absolutely magical and transformative experience (you'll find me in the Glamping section this time) and stay tuned for a Sex Camp Survial Guide coming later this year!
-</div>
+
 
 <img align="left" src="https://sensiren.files.wordpress.com/2018/01/brigidsitting1.jpg" alt="brigidsitting" width="50%" height="50%"style="padding:20px"/>
 
