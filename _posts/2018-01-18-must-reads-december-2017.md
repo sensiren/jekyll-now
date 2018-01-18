@@ -30,23 +30,23 @@ Elle Chase is a goddess. If you haven't read her book, <a href="https://www.amaz
 <h4>Make Them Leave by <a class="ovr" href="https://www.pastemagazine.com/writers?name=jamie+loftus">Jamie Loftus</a></h4>
 <em>Read It Here: <a href="https://amp.pastemagazine.com/articles/2017/12/make-them-leave.html?__twitter_impression=true">https://amp.pastemagazine.com/articles/2017/12/make-them-leave.html</a></em>
 
-<div><p>This #metoo account was a particularly hard one for me. T.J. Miller has been a favourite comedian of mine for years and I felt betrayed and angry, not only by the original allegations (and others that followed) but by the tone of the message he and his wife posted in response. Something about it felt gaslight-y and it made me really uncomfortable, even if there's a chance  they were truthful about the incident at hand.</div>
+<div><p>This #metoo account was a particularly hard one for me. T.J. Miller has been a favourite comedian of mine for years and I felt betrayed and angry, not only by the original allegations (and others that followed) but by the tone of the message he and his wife posted in response. Something about it felt gaslight-y and it made me really uncomfortable, even if there's a chance  they were truthful about the incident at hand.
 <div></div>
-<div>Loftus' piece has a focus on the way survivors and victims are often pushed to give "their perspective" by men who want permission to ignore the wrongdoing of other men. This is real and shitty and beyond dismissive but it happens all the time. Her thoughts on rehabilitation also resonated with me a lot and this piece has really helped me navigate my feelings as more and more brave women come forward.</p></div>
+<div>Loftus' piece has a focus on the way survivors and victims are often pushed to give "their perspective" by men who want permission to ignore the wrongdoing of other men. This is real and shitty and beyond dismissive but it happens all the time. Her thoughts on rehabilitation also resonated with me a lot and this piece has really helped me navigate my feelings as more and more brave women come forward.</div>
 <h4>You Need Help: Here Is A Worksheet To Help You Talk To Partners About Sex posted by <a title="Posts by A.E. Osworth" href="https://www.autostraddle.com/author/aeosworth/" rel="author">A.E. Osworth</a> on Autostraddle</h4>
 <div><em>Read It Here:<a href="https://www.autostraddle.com/you-need-help-here-is-a-worksheet-to-help-you-talk-to-partners-about-sex-237385/"> https://www.autostraddle.com/you-need-help-here-is-a-worksheet-to-help-you-talk-to-partners-about-sex-237385/</a></em></div>
 <div></div>
-<div><p>It's safe to say I'm pretty comfortable talking about sex, I spend every day of my life doing it in some form or another. So it's easy to forget that so many of us get tongue-tied when it comes to discussions of sex and sexuality, particularly when it is specifically about you and another human. I've seen many variations of Yes/No/Maybe lists and the like over the years but this selection of worksheets that was shared to <a href="https://www.facebook.com/groups/sexgeekdomact">Sex Geekdom ACT</a> are my favourite so far.</div>
+<div><p>It's safe to say I'm pretty comfortable talking about sex, I spend every day of my life doing it in some form or another. So it's easy to forget that so many of us get tongue-tied when it comes to discussions of sex and sexuality, particularly when it is specifically about you and another human. I've seen many variations of Yes/No/Maybe lists and the like over the years but this selection of worksheets that was shared to <a href="https://www.facebook.com/groups/sexgeekdomact">Sex Geekdom ACT</a> are my favourite so far.
 <div></div>
 <div>They cover specific acts but also include topping/bottoming and giving/receiving preferences, encourage safety discussions about toys and lubes, explore the creativity of sex and sexuality, promotes conversation about language for both safety and gender reasons, allow you to share fantasies and establish boundaries. There is also a cute venn diagram to fill in all your interests so you can see what you and your partner share.
 
-I think these are really great tools to fill out alone or with new/existing partners (either together, perhaps over brunch - or alone and then swapped) as a starting point for an exciting exploration. I'm all for giving people the tools to empower themselves and these are excellent tools. ;P</p></div>
+I think these are really great tools to fill out alone or with new/existing partners (either together, perhaps over brunch - or alone and then swapped) as a starting point for an exciting exploration. I'm all for giving people the tools to empower themselves and these are excellent tools. ;P</div>
 <div></div>
 <h4>Best Writings By Sex Workers by Suzy Hooker on Tits &amp; Sass</h4>
 <div><em>Read It Here: <a href="https://titsandsass.com/2017s-best-writing-by-sex-workers/">https://twitter.com/SexWorkHive/status/946423527523184640</a></em></div>
 <div></div>
-<div><p>What it says on the box. A wonderful collection of sex worker voices from 2017.</div>
-<div><span style="text-decoration:underline;">Go Read Them!</span></p></div>
+<div><p>What it says on the box. A wonderful collection of sex worker voices from 2017.
+<div><span style="text-decoration:underline;">Go Read Them!</span></div>
 <h4>Things I don’t like seeing in Indigenous affairs reporting: a thread by <span class="FullNameGroup"><a class="account-group js-account-group js-action-profile js-user-profile-link js-nav" href="https://twitter.com/IndigenousX"><strong class="fullname show-popup-with-id u-textTruncate ">Callum Clayton-Dixon</strong>‏</a> (<a href="https://twitter.com/IndigenousX">@IndigenousX</a>)</span></h4>
 <div><em>Read It Here: <a href="https://twitter.com/IndigenousX/status/947292683638157313">https://twitter.com/IndigenousX/status/947292683638157313</a></em></div>
 <div>
