@@ -62,6 +62,7 @@ At the end of it all, it's one day and it only means what you allow it to mean. 
 ><a href="https://joujou.refersion.com/l/4b7.11298">
 >Up to 50% off Storewide and free shipping over $60 with code: CUPID</a>
 
-<img src="https://s3.amazonaws.com/refersion_client/1389/creatives/08-11-14-04-50-34_Tantus-positive-250wide.png" >><a href="http://www.tantusinc.com?rfsn=578405.7abf8.4531">
+<img src="https://s3.amazonaws.com/refersion_client/1389/creatives/08-11-14-04-50-34_Tantus-positive-250wide.png" >
+><a href="http://www.tantusinc.com?rfsn=578405.7abf8.4531">
 >30% off Valentine's Day Collection until Feb 15th using code: DELICIOUS</a>
 
