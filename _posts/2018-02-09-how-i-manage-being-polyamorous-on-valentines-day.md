@@ -43,7 +43,7 @@ You're not a bad polyam person if you don't see every one of partners in a meani
 At the end of it all, it's one day and it only means what you allow it to mean. Some years, you'll have magical romantic experiences that celebrate love and everything that's great about it and other years you'll hopefully remember to send a relevant GIF to the group chat. As long as you communicate effectively and manage expectations you'll live!
 
 <hr />
-<p style="text-align:center;">*Here are some affiliate links to some Valentine's Sales, you can support my work by purchasing through these links. Xx Siren*</p>
+<p style="text-align:center;"><em>Here are some affiliate links to some Valentine's Sales, you can support my work by purchasing through these links. Xx Siren</em></p>
 <hr />
 <div style="text-align:center">
 [<img src="https://c1.staticflickr.com/5/4676/39280012385_c1b07e4c38_b.jpg" width="250" height="250" >](https://www.splitpeaches.com?rfsn=690855.a1e20)
