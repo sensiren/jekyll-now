@@ -62,4 +62,3 @@ At the end of it all, it's one day and it only means what you allow it to mean. 
 [<img src="https://s3.amazonaws.com/refersion_client/1389/creatives/08-11-14-04-50-34_Tantus-positive-250wide.png" >](http://www.tantusinc.com?rfsn=578405.7abf8.4531)
 >30% off Valentine's Day Collection until Feb 15th using code: DELICIOUS
 
-</P>
