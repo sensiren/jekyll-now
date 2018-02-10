@@ -52,17 +52,20 @@ At the end of it all, it's one day and it only means what you allow it to mean. 
 ><a href="https://t.cfjump.com/41045/b/88794">Adult Stop Valentine's Gift Guide</a>
 
 <img src="https://c1.staticflickr.com/5/4712/39467604604_33dfcc9c58_o.jpg">
-><a href="https://t.cfjump.com/41045/b/67144">Valentine's Day @ Lovehoney AU</a>
+><a href="https://t.cfjump.com/41045/t/29682">Valentine's Day @ Lovehoney AU</a>
 
 >$30 off when you spend $100, and free delivery until Feb 14th with the code: AFF30OFF
 
 >$10 off when you spend $70, and free delivery with the code until Feb 14th: AFF15OFF
 
 <img src="https://cdn.refersion.com/1355/creatives/10-10-16-12-05-16_250x250Ruby.png">
-><a href="https://joujou.refersion.com/l/4b7.11298">
+><a href="https://joujou.refersion.com/c/5d991">
 >Up to 50% off Storewide and free shipping over $60 with code: CUPID</a>
 
 <img src="https://s3.amazonaws.com/refersion_client/1389/creatives/08-11-14-04-50-34_Tantus-positive-250wide.png" >
 ><a href="http://www.tantusinc.com?rfsn=578405.7abf8.4531">
 >30% off Valentine's Day Collection until Feb 15th using code: DELICIOUS</a>
 
+<img src="https://c1.staticflickr.com/5/4746/25311487067_79c3e8eec8_o.jpg" >
+><a href="https://t.cfjump.com/41045/t/49610">
+>10% off lingerie and couples sex toys until 14 Feb using code: BEMYVALENTINE</a>
