@@ -3,8 +3,7 @@ layout: post
 title: How I Manage Being Polyamorous on Valentine's Day
 date: 2018-02-09 11:44
 author: sensiren
-comments: true
-categories: [Uncategorized]
+
 ---
 <img class="alignnone size-full wp-image-2406" src="https://sensiren.files.wordpress.com/2018/02/vdayblog_1_original.jpg" alt="vdayblog_1_original" width="100%" height="100%" />
 
