@@ -45,7 +45,7 @@ At the end of it all, it's one day and it only means what you allow it to mean. 
 <hr />
 <p style="text-align:center;"><em>Here are some affiliate links to some Valentine's Sales, you can support my work by purchasing through these links. Xx Siren</em></p>
 <hr />
-<div style="text-align:center">
+
 [<img src="https://c1.staticflickr.com/5/4676/39280012385_c1b07e4c38_b.jpg" width="250" height="250" >](https://www.splitpeaches.com?rfsn=690855.a1e20)
 
 [<img src="https://c1.staticflickr.com/5/4712/39467604604_33dfcc9c58_o.jpg">](https://t.cfjump.com/41045/b/67144)
