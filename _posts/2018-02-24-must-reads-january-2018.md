@@ -8,7 +8,7 @@ categories: [Must Reads]
 <img class="alignnone size-full wp-image-2402" src="https://sensiren.files.wordpress.com/2018/02/mustreadsjan18_2_original.jpg" alt="mustreadsjan18_2_original" width="100%" height="100%" />
 
 <hr />
-<p style="text-align:center;"><em>Welcome to my curated collection of some of my favourite articles, twitter threads and essays from the past month. January is very #metoo &amp; sexual harassment and assault heavy so proceed with caution. There's also a great piece on Invasion/Australia Day and a healthy dose of sex work, Star Wars and a little bit of queer pettiness to give you a pick me up after all the real shit. &lt;3
+<p style="text-align:center;"><em>Welcome to my curated collection of some of my favourite articles, twitter threads and essays from the past month. January is very #metoo &amp; sexual harassment and assault heavy so proceed with caution. There's also a great piece on Invasion/Australia Day and a healthy dose of sex work, Star Wars and a little bit of queer pettiness to give you a pick me up after all the real shit. &lt;3 <br><br>
 
 </em>(Sorry it's late, February will come out quite soon too so I can hopefully get a good schedule going for the rest of the year)</p>
 

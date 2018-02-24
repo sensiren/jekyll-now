@@ -4,7 +4,7 @@ title: Must Reads - December 2017
 date: 2018-01-18 20:53
 author: sensiren
 comments: true
-categories: [Recommended Reading]
+categories: [Must Reads]
 ---
 <img class="alignnone size-full wp-image-2397" src="https://sensiren.files.wordpress.com/2018/01/mustreadsgraphic_1_original.jpg" alt="mustreadsgraphic_1_original" width="100%" height="100%" />
 
