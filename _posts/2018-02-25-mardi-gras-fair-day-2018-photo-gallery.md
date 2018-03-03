@@ -5,7 +5,7 @@ date: 2018-02-25 16:41
 author: sensiren
 categories: [Gallery]
 ---
-<img class="alignnone size-full wp-image-2457" src="https://sensiren.files.wordpress.com/2018/02/newproject_1_original.jpg" alt="newproject_1_original.jpg" width="1024" height="512" />
+<img class="alignnone size-full wp-image-2457" src="https://sensiren.files.wordpress.com/2018/02/newproject_1_original.jpg" alt="newproject_1_original.jpg" width="100%" height="100%" />
 <p style="text-align:center;">I was lucky enough to spend Fair Day with the lovely [Lucie Bee](https://www.luciebee.com) on Sunday February 18th. I hadn't been since I was a kid and it was absolutely euphoric - Marriage Equality has passed and the sky has not fallen and we are celebrating the 40th anniversary of the very first Mardi Gras in 1978. Taking time to acknowledge how far we've come and to look forward to the future bought such an amazing energy to the day and I felt so privileged to share it with my community.</p>
 <p style="text-align:center;">Also, there were so many dogs I wanted to cry 99% of the time.</p>
 <p style="text-align:center;"><strong>Happy Mardi Gras Everyone! &lt;3</strong>
