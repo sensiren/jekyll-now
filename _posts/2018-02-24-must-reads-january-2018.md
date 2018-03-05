@@ -12,7 +12,7 @@ categories: [Must Reads]
 
 ---
 
-<img class="alignnone size-full wp-image-2402" src="https://sensiren.files.wordpress.com/2018/02/mustreadsjan18_2_original.jpg" alt="mustreadsjan18_2_original" width="1024" height="512" />
+<img class="alignnone size-full wp-image-2402" src="https://sensiren.files.wordpress.com/2018/02/mustreadsjan18_2_original.jpg" alt="mustreadsjan18_2_original" width="100%" height="100%" />
 
 
 
