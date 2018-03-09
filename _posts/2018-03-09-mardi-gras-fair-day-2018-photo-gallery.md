@@ -19,8 +19,7 @@ categories: [Gallery]
 <img class="alignnone size-full wp-image-2467" src="https://sensiren.files.wordpress.com/2018/02/8-dsc_00971.jpg" alt="8-DSC_0097" width="100%" height="100%" /><img class="alignnone size-full wp-image-2470" src="https://sensiren.files.wordpress.com/2018/02/11-dsc_01021.jpg" alt="11-DSC_0102" width="100%" height="100%" />
 
 <img class="alignnone size-full wp-image-2471" src="https://sensiren.files.wordpress.com/2018/02/12-dsc_01041.jpg" alt="12-DSC_0104" width="100%
-" height="100%" /> Lucie &amp; The Baby Queers
-
+" height="100%" /> 
 <img class="alignnone size-full wp-image-2473" src="https://sensiren.files.wordpress.com/2018/02/14-dsc_01091.jpg" alt="14-DSC_0109" width="100%" height="100%" />
 
 <img class="alignnone size-full wp-image-2477" src="https://sensiren.files.wordpress.com/2018/02/18-dsc_01171.jpg" alt="18-DSC_0117" width="100%" height="100%" /> 
