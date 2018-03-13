@@ -21,12 +21,11 @@ I am not a Person of Colour and try to acknowledge my privilege in my work.
 <b>Occasionally</b><strong> Relevant</strong>
 <ul>
 	<li>I have had mood disorder and generalized anxiety since I was a pre-teen</li>
-	<li>I have chronic fatigue and probably mild-moderate ADHD</li>
+	<li>I have chronic fatigue and ADHD</li>
 	<li>My wrists and ankles have ligament issues which cause general weakness and regularly fatigue under consistent strain. I can't hand-write comfortably.</li>
 	<li>I am processing trauma from a previous relationship that intersects with sex, kink and relationships semi-frequently</li>
 	<li>I am a sex worker and adult performer</li>
-	<li>I am hyper-orgasmic and have been as long as I can remember</li>
-	<li>I am not strictly sober but do not drink or do drugs particularly often</li>
+	<li>I drink and do drugs socially but only when mindful of my headspace</li>
 	<li>I don't think I have any allergies</li>
 </ul>
 <strong>Review-Specific<br>
@@ -46,4 +45,4 @@ I am not a Person of Colour and try to acknowledge my privilege in my work.
 <em>Interests: </em>Sensation Play is always #1, most sadomasochism, role play in general, humiliation and degradation, exhibitionism, blood/medical play, pony play, service play (mainly receiving), gags/oral fixation, femininity, objectification , rope switching, ritual, rough body play, Nylon (particularly hosiery), Latex, Extreme Heels<br><br>
 <em>Preference:</em> (keeping it gear specific) High quality is vital, small companies or bespoke where possible, will always invest in quality, prefer canes/paddles/straps/crops to floggers and whips but very comfortable with both, prefer stingy to thuddy but need thuddier for warm up currently, always jute rope (currently use lightly treated Tossa Jute from Jade rope but looking to purchase a more traditional set), as body safe as is physically possible
 
-<em>Last Updated: 7th of October, 2017</em>
+<em>Last Updated: 13th of March, 2018</em>
