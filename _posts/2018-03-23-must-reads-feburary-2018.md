@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Must Reads: Feburary 2018
+title: Must Reads - Feburary 2018
 date: 2018-03-23 11:52
 author: sensiren
 categories: [Must Reads]
