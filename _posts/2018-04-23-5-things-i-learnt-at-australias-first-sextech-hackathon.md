@@ -31,6 +31,7 @@ The majority of pitches came from women, most of the mentors were women and it w
 
 I want next year to be less cis, to be queerer, to involve more sex workers, to be less white... but I'll take a room of brilliant motivated women as a damn good start!</p>
 
+
 <img class="alignnone size-full wp-image-2530" src="https://sensiren.files.wordpress.com/2018/04/ststeffie.jpg" alt="STsteffie.jpg" width="100%" height="100%" /></li>
 
 	<li>
