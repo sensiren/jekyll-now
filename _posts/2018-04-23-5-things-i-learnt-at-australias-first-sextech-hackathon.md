@@ -52,7 +52,7 @@ Whether your project is sex toys or porn or sex education or helping a marginali
 
 When I profiled participants for a piece that will follow this, the key question I asked was how they would integrate this consultation into their process and few had a comprehensive plan. Specialists need to be part of your research, your development, your testing, your marketing... they need to be part of an ongoing dialogue to make sure you are still doing the right thing by your consumer.
 
-One thing I loved about the Hackathon was the inclusion of so many people from outside of the tech sphere. We need to encourage people with that knowledge and experience into these spaces to help shape and define the future of sex and technology.
+One thing I loved about the Hackathon was the inclusion of so many people from outside of the tech sphere. We need to encourage people with that knowledge and experience into these spaces to help shape and define the future of sex and technology.<br><br>
 <img class="alignnone size-full wp-image-2531" src="https://sensiren.files.wordpress.com/2018/04/stzoe.jpg" alt="STzoe.jpg" width="100%" height="100%" /></li>
 	<li>
 <h4>I am passionate about connecting people and workshopping their ideas</h4>
