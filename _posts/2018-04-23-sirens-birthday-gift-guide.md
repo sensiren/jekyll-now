@@ -27,6 +27,8 @@ author: sensiren
 <strong>Lightbox!
 </strong>I want to take more beautiful product photos for my reviews and good lighting is key. <span style="text-decoration:underline;">Use PayPal to send $30 AUD to thesensiren@gmail.com</span> so I can buy a light box and I'll send you branded goodies and a thank you card!
 
+
+
 <img class="alignnone size-full wp-image-2524" src="https://sensiren.files.wordpress.com/2018/04/birthdaybanner2_1_original.jpg" alt="birthdaybanner2_1_original.jpg" width="100%" height="100%" />
 
 <strong>These are sex toys I really want to play with and/or review. The easiest way to help in this category is to send an online gift card to thesensiren@gmail.com (or just PayPal the amount). I love gift cards from:
