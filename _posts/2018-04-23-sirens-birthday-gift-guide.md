@@ -19,10 +19,8 @@ author: sensiren
 <strong>This category is ways you can support my teaching, content production, consultancy, blogging and writing and all the other ways I educate, create and advocate out in the world. If you like my core work this is the category for you.</strong> Happy to throw in a 30-minute skype coaching or consultancy session with items in this category if that's something useful to you.
 
 <strong>Logo!
-</strong>I have commissioned an amazing logo from <a href="https://www.instagram.com/barbedwirelust/">Sam De Sa Gimenes of Barbed Wire Lust</a>. I'm obsessed with their work can can't wait to see the final project. Gift me this logo design by using <span style="text-decoration:underline;">PayPal to send $80USD to thesensiren@gmail.com</span> and you'll receive some of the first SenSiren branded goodies and a thank you card!
-
-
-
+</strong>I have commissioned an amazing logo from <a href="https://www.instagram.com/barbedwirelust/">Sam De Sa Gimenes of Barbed Wire Lust</a>. I'm obsessed with their work can can't wait to see the final project. Gift me this logo design by using <span style="text-decoration:underline;">PayPal to send $80USD to thesensiren@gmail.com</span> and you'll receive some of the first SenSiren branded goodies and a thank you card!    
+   
 <strong>Printing!
 </strong>With a new logo comes new business cards and other printed items, <span style="text-decoration:underline;">use PayPal to send $50 AUD to thesensiren@gmail.com</span> for new cards and flyers and I'll send you branded goodies and a thank you card!
 
